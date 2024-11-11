@@ -1,5 +1,5 @@
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/eidrbh.gif"/></p
-
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/4n2zkj.png"/></p
+                                                                                       
 <p align="center">
                                                           
 <p align="center"> <p align="center"> 𝚑𝚒𝚑𝚒 𝚐𝚊𝚗𝚐, 𝚝𝚑𝚊𝚗𝚔𝚣 𝟺 𝚌𝚕𝚒𝚌𝚔𝚒𝚗𝚐 𝚘𝚗 𝚖𝚢 𝚙𝚏!
@@ -12,18 +12,17 @@
   . . .
 <p align="center"> 
 
-<p align="center"> "𝐕𝐢𝐞𝐰 𝐨𝐟 𝐥𝐢𝐟𝐞. 𝐁𝐞𝐚𝐮𝐭𝐲. 𝐓𝐡𝐞 𝐞𝐠𝐠." <p align="center"> 
+<p align="center"> "𝐈 𝐠𝐢𝐯𝐞 𝐲𝐨𝐮 𝐦𝐲 𝐬𝐨𝐮𝐥, 𝐃𝐚𝐫𝐥𝐢𝐧𝐠, 𝐁𝐮𝐭 𝐢𝐭 𝐦𝐚𝐲 𝐧𝐨𝐭 𝐛𝐞 𝐰𝐡𝐚𝐭 𝐲𝐨𝐮 𝐞𝐱𝐩𝐞𝐜𝐭." <p align="center"> 
 <p align="center"> 
-"𝐍𝐞𝐯𝐞𝐫 𝐚𝐥𝐨𝐧𝐞. 𝐁𝐞𝐚𝐮𝐭𝐲 𝐢𝐭𝐬𝐞𝐥𝐟 𝐰𝐢𝐥𝐥 𝐧𝐞𝐯𝐞𝐫 𝐥𝐞𝐚𝐯𝐞 . . . 𝐅𝐨𝐩. 𝐃𝐨𝐧'𝐭 𝐝𝐨 𝐢𝐭. 𝐒𝐥𝐞𝐞𝐩." <p align="center"> 
+"𝗧𝗲𝗹𝗹 𝗵𝗲𝗿 𝘁𝗵𝗲 𝐭𝐫𝐮𝐭𝐡? 𝗜 𝗰𝗮𝗻𝗻𝗼𝘁 𝗵𝗮𝗻𝗱𝗹𝗲 𝘁𝗵𝗲 𝗴𝘂𝗶𝗹𝘁." <p align="center"> 
 
 <p align="center">
   . . .
 <p align="center">
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/qppqus.gif"/></p
                                                                                         
 <p align="center"> 
   
 <p align="center"> 𝙳𝚘𝚗𝚝 𝚝𝚊𝚔𝚎 𝚒𝚗𝚜𝚙𝚘 𝚗𝚘𝚛 𝚌𝚘𝚙𝚢 𝚖𝚢 𝚜𝚔𝚒𝚗𝚜 𝚙𝚕𝚜.<p align="center">
 <p align="center"> <p align="center"> 
 
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/qppqus.gif"/></p
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/jxkr8q.png"/></p
